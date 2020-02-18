@@ -4,4 +4,4 @@ ahdajhdaskhd IaksldjaklsdI *ashdajksdhjaksds* **ahsdjkahsjdkasd**
 
 
 
-asdas `JOb` ~~fhfghfgh~~ <!--ghasjdgahjsdgjhasd--> [hajksdhjakshdsa](facebook.com) 
+Greate `JOb` ~~fhfghfgh~~ <!--ghasjdgahjsdgjhasd--> [hajksdhjakshdsa](facebook.com) ![siikma](C:\Users\Feby Tri Saputra\Documents\siikma.png)
